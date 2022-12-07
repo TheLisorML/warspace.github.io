@@ -1,1 +1,1 @@
-# warspace.github.io
+# Warspace - официальный сайт
